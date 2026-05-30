@@ -2,6 +2,6 @@
 
 ![](https://komarev.com/ghpvc/?username=poisondeaIer&color=grey) 
  <br>![hehe](https://i.imgur.com/rxsjSSQ.png) ![hehe](https://i.imgur.com/1qketyj.png)<br>
- ![hehe](https://i.imgur.com/BCV7nrs.gif)<br>
+**i hide proshippers + ppl who associate, get a hold of urself** <br>
 ask me about our phighting ocs<br>
 ![hehe](https://i.imgur.com/rioESV7.gif)<br>
